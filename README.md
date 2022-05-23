@@ -37,9 +37,25 @@ Este carnaval se ha realizado hace 200 años y ha sufrido cambios radicales a lo
 
 3. Actualmente podemos apreciar que esta conmemoración se conforma por un sincretismo de cultura del pueblo de Uru y los españoles, la cual consiste en la conmemoración de la Virgen de Socavón representando su lucha junto al Arcángel Miguel contra el Diablo y sus diablillos. A pesar de que estos personajes son meramente católicos, aún se pueden apreciar divinidades prehispánicas como lo es el Cóndor. 
 
-#### Personajes y vestimentas
-
 #### Baile
 
 En el carnaval se conforman distintos bailes folclóricos que contienen sus propias coreografías, vestimentas, elementos y relatos. 
 **La Diablada**, es uno de los rituales más conocidos que forma parte de este carnaval y proyecta el baile de los diablos en esta **batalla del Bien y el Mal**. Esta se caracteriza por sus vestimentas extravagantes, coreografías y los personajes que componen la representación de la batalla. 
+
+##### Personajes y vestimentas
+
+##### Corografía
+ 
+Sobre la marcha el personaje que encabeza es el Arcángel Miguel seguido por el Diablo y su China Supay y por último el Cóndor, que realizan el saludo a la Virgen. Detrás de estos personajes principales se encuentran los diablos que se encargan de llevar una coreografía coordinada que consiste en ***saltar, avanzar y retroceder** constantemente. Para la coordinación de esta marcha existen **distintas posiciones** para realizar el baile que representa la batalla: 
+
+- El paso del Diablo. 
+
+- El Ovillo. 
+
+- La Estrella de cinco puntas. 
+
+- Firma del diablo.
+
+- La cadena.
+
+- Escuadras de invasión. 
