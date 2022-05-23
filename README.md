@@ -41,4 +41,5 @@ Este carnaval se ha realizado hace 200 años y ha sufrido cambios radicales a lo
 
 #### Baile
 
-En el carnaval se conforman distintos bailes folclóricos que contienen sus propias coreografías, vestimentas, elementos y relatos. **La Diablada**, es uno de los rituales más conocidos que forma parte de este carnaval y proyecta el baile de los diablos en esta batalla del Bien y el Mal. Esta se caracteriza por sus vestimentas extravagantes, coreografías y los personajes que componen la representación de la batalla. 
+En el carnaval se conforman distintos bailes folclóricos que contienen sus propias coreografías, vestimentas, elementos y relatos. 
+**La Diablada**, es uno de los rituales más conocidos que forma parte de este carnaval y proyecta el baile de los diablos en esta **batalla del Bien y el Mal**. Esta se caracteriza por sus vestimentas extravagantes, coreografías y los personajes que componen la representación de la batalla. 
